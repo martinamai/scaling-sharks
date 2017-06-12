@@ -1,2 +1,2 @@
 # scaling-sharks
-ideas
+ideas martina ... open and free! 
